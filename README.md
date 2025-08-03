@@ -1,2 +1,3 @@
-# inductionprogramm
-Akashdeep kaur , EE 
+# Day 1 
+# 8:30 to 9:30 
+- shabad
