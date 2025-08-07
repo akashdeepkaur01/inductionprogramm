@@ -37,3 +37,7 @@ academic strengths and the importance of embracing opportunities during college 
 -English & Maths Proficiency Tests were conducted . 
 
 -Together, we continue shaping a journey of purpose, learning, and well being !!
+
+ ***# DAY 3***
+- The day was started with mool mantr, the hod applied science recited the mool mantr and it was a fresh start .
+- After that miss taranpreet kaur a member of causmic club introduced the club to us with a extreme energy and expressing her words clearly and in  meaningful ,impressive way . she guided us about the club and shared all information about 
